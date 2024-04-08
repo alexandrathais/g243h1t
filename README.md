@@ -1,1 +1,2 @@
-# g243h1t
+# Dupla
+## Sakai (03), Ryu (27)
